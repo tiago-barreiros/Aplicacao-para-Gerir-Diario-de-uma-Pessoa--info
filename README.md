@@ -1,0 +1,1 @@
+# Aplicacao-para-Gerir-Diario-de-uma-Pessoa--info
